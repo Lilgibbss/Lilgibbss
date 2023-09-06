@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lilgibbss
-- 👀 I’m interested in game dev, 3d, and getting better at programming
+- 👀 I’m interested in international quisine, 3d, and getting better at programming
 - 🌱 I’m currently learning c language and blender
 - 📫 How to reach me: gilberndowdy04@gmail.com
 
